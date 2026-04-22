@@ -1,6 +1,6 @@
 # <h1>3Patti APK Download – Latest Version v1.207</h1>
 
-<a href="https://your-download-link.com" target="_blank" style="display:inline-block; padding:12px 20px; background:#28a745; color:#fff; text-decoration:none; border-radius:6px; font-weight:bold;">
+<a href="[https://your-download-link.com](https://3patiblue.com.pk/)" target="_blank" style="display:inline-block; padding:12px 20px; background:#28a745; color:#fff; text-decoration:none; border-radius:6px; font-weight:bold;">
 Download APK Now
 </a>
 APK APK 3Patti APK v1.2.07 | Download App for Android latest version
